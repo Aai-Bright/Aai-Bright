@@ -8,7 +8,7 @@
 - Favourite F1 team: Ferrari, Williams
 - Favourite F1 driver: Alain Prost, Michael Schumacher, Juan Pablo Montoya, Fernando Alonso, Alex Albon, Oscar Piastri
 ---
-- Facebook: https://www.facebook.com/baito_6403
+- Facebook: https://www.facebook.com/baito.6403
 - Instagram: https://www.instagram.com/than.b_right
 - Reddit: https://www.reddit.com/u/_Mmrr_Bbrightt_
 - Discord: baito_69.png
