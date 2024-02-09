@@ -1,0 +1,14 @@
+- Mr.Yanathip Kanlayanatham, known as Bright (but I prefer to call myself Baito for some reason!)
+- 20 y/o beginner programmer (C/C++/HTML/JS) from Thailand
+- can speak in both Thai & English
+- as lazy as hell, muhaha
+---
+- Manchester United & F1 fan
+- Favourite footballer: Class of '92, Kanté, Ronaldo R9, Zidane
+- Favourite F1 team: Ferrari, Williams
+- Favourite F1 driver: Alain Prost, Michael Schumacher, Juan Pablo Montoya, Fernando Alonso, Alex Albon, Oscar Piastri
+---
+- Facebook: https://www.facebook.com/baito_6403
+- Instagram: https://www.instagram.com/than.b_right
+- Reddit: https://www.reddit.com/u/_Mmrr_Bbrightt_
+- Discord: baito_69.png
