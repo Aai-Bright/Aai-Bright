@@ -4,7 +4,7 @@
 - as lazy as hell, muhaha
 ---
 - Manchester United & F1 fan
-- Favourite footballer: Class of '92, Kanté, Ronaldo R9, Zidane
+- Favourite footballer: Class of '92, Kanté, Ronaldo R9, Zidane, De Bruyne, Neuer, Buffon
 - Favourite F1 team: Ferrari, Williams
 - Favourite F1 driver: Alain Prost, Michael Schumacher, Juan Pablo Montoya, Fernando Alonso, Alex Albon, Oscar Piastri
 ---
