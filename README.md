@@ -1,7 +1,6 @@
 - Mr.Yanathip Kanlayanatham, known as Bright (but I prefer to call myself Baito for some reason!)
 - 20 y/o beginner programmer (C/C++/HTML/JS) from Thailand
 - can speak in both Thai & English
-- as lazy as hell, muhaha
 ---
 - Manchester United & F1 fan
 - Favourite footballer: Class of '92, Kanté, Ronaldo R9, Zidane, De Bruyne, Neuer, Buffon
